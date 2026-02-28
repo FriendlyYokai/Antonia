@@ -1,0 +1,3 @@
+Nyxium is a metal found throughout [[Beras]]. It was discovered in [[Calisonian Calendar|50 Truth]] by the scholar Nyx Korestes, founding patriarch of the [[House of Korestes]], who theorized that it would facilitate the use of magic by functioning as a form of storage for [[Magic#Potential|the energy known as Potential]]. Once the ore is extracted Nyxium is smelted and formed into batteries, their size and shape differing based on the [[Magical Devices|magical device]] being powered.
+
+#worldbuilding #magic

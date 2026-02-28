@@ -1,0 +1,7 @@
+The Kingdom of Derelia is located in the northwest of the [[Beras]] continent. Though the kingdom claims continuity with the [[Empire of Derelia]], it is at best a rump state, reaching only a tenth of the Empire's landmass, and--more importantly--not even controlling the Empire's former capital of [[Volanea]]. In truth, the Kingdom of Derelia was formed in [[Calisonian Calendar|502 Twilight]] shortly after the [[Empire of Derelia#Collapse|Fall of the Derelian Empire]] by provincial leaders eager to seize the opportunity, and supported by nobles fleeing the chaos in the capital. Provincial leaders were often not themselves nobility. 
+
+## Government
+
+While the Empire was a fully hereditary monarchy, the Kingdom is an elective monarchy where all nobles may nominate themselves or someone else for the lifelong position of King by the Elector Princes. There are 500 Elector Princes, and while being nobility is not a requirement for being an Elector Prince, a current Elector Prince may only appoint a successor from his extended family (up to 4 degrees of separation) and may not abdicate the title while alive, though the appointed successor may vote in his stead in circumstances of illness or physical distance from the court.
+
+#worldbuilding #derelia
