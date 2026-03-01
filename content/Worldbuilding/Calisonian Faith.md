@@ -1,0 +1,3 @@
+The Calisonian Faith is a religion founded around the worship of the mythological figure Calis of Venivanda, the first ruler of [[Kenn]], who traveled across the sea with his people to settle Beras.
+
+Calis is seen as a God-King, having taken human form in order to lead the expedition into Beras. The [[Orthodoxy of Calis]] as well as other Calisonian groups recognize the [[Epic of Calis]] as the central holy text of the religion, with the words and deeds of the King and his followers serving as moral and spiritual guidance.

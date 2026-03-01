@@ -1,4 +1,4 @@
-The Orthodoxy of Calis follows a lunar calendar of 363 days a year, as most other cultures do in Beras. The Calisonian calendar, however, uses the date of death of the First Martyr as its Epoch Year. The Calendar is further divided into Eras marking the beginning or end of significant time periods, with each Era being named *post facto* by a ruler. The current era is always "Current" (for example: someone living in the 40th year of the era is living in 40 Current, but after that era ends, he would be said to have lived in 40 Truth).
+The [[Orthodoxy of Calis]] follows a lunar calendar of 363 days a year, as most other cultures do in Beras. The Calisonian calendar, however, uses the date of death of the First Martyr as its Epoch Year. The Calendar is further divided into Eras marking the beginning or end of significant time periods, with each Era being named *post facto* by a [[Orthodoxy of Calis#Government|ruler]]. The current era is always "Current" (for example: someone living in the 40th year of the era is living in 40 Current, but after that era ends, he would be said to have lived in 40 Truth).
 
 The Eras are listed as follows 
 
