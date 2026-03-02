@@ -1,0 +1,3 @@
+The New Universal Church of Calis is a schismatic sect of the [[Calisonian Faith]], having broken from the [[Orthodoxy of Calis|Orthodoxy]] after the establishment of the [[Berasian Republic]]. While the Republic government itself is openly atheist and incentivizes secularism in the citizen's personal life, the New Universal Church functions as a way to keep what they see as the more subversive and reactionary elements of the population in check.
+
+#worldbuilding #religion 
