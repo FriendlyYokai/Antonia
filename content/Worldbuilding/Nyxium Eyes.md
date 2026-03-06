@@ -1,0 +1,1 @@
+Nyxium Eyes are a condition caused by the presence of Nyxium in the body wherein an individual's eyes turn into a vibrant shade of red. It is not necessarily indicative of [[Nyxium Poisoning]], but is generally considered a warning sign. The exception to this is in individuals with low but constant amounts of Nyxium in their bodies, generally seen in people with Nyxium implants.

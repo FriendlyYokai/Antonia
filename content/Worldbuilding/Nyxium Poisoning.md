@@ -1,0 +1,5 @@
+Nyxium Poisoning is a medical condition caused by the presence of toxic amounts of [[Nyxium]] in the body. Whenever a Nyxium battery releases [[Magic|Potential]], a small amount of the Nyxium in the battery itself has a chance to atomize and release Nyxium particles into the air. In small quantities, this is not particularly dangerous, but prolonged and intense exposure can cause Nyxium Poisoning.
+
+Individuals afflicted with Nyxium Poisoning experience a gradual shutdown of their organ functions if the condition is left untreated for too long. Cases reached their height during the [[Empire of Derelia#The Glorious Excursion|Glorious Excursion]] which saw widespread use of Nyxium-powered weaponry by rank and file troops.
+
+As of 40 Current most states in Beras are slowly beginning to shift towards encased batteries which, though more expensive, greatly limit the contamination of Nyxium into the local environment.
